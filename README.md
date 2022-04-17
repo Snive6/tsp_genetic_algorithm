@@ -1,0 +1,1 @@
+# Zastosowanie_sztucznej_inteligencji
